@@ -1,5 +1,5 @@
 # 🙋🏽‍♂️ About Me:
-Hi there 👋🏾, I’m Judith Okon<br><br>A Data Scientist 🧑🏽‍💻
+Hi there 👋🏾, I’m Olu Ayinde<br><br>A Data Scientist 🧑🏽‍💻
 
 
 ## 🌐 Socials:
